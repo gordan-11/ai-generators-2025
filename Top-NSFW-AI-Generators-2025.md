@@ -1,5 +1,5 @@
 
-# 🔥 Best 7 AI Porn Generators & Companions of 2025
+# 🔥 Best AI Porn Generators & Companions of 2025 – Top 7 Tools Reviewed
 
 ![AI Porn Generator Banner](https://github.com/gordan-11/ai-generators-2025/blob/main/nsfwi-ai-generator-banner.png?raw=true)
 
